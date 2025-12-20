@@ -1,4 +1,4 @@
-こんにちは！！！！！！
+こんにちは！！！！
 
 ポートフォリオ: https://drive.google.com/file/d/13YqR_rKOeDLqwt6bvdJTCC35mlLtUmRK/view?usp=drive_link
 
